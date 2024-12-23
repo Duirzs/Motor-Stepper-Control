@@ -1,2 +1,2 @@
-Girfan Notario
+Girfan Notario.
 Muhammad Daffa Cholisuddin
